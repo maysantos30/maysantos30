@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on for school
 
 - 
-![image](https://github.com/maysantos30/maysantos30/assets/133024370/e9a4702f-158e-4194-b045-002a19530bcd)
+https://media.tenor.com/P7hCyZlzDH4AAAAC/wink-anime.gif
 
 <!---
 maysantos30/maysantos30 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
